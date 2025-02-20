@@ -6,13 +6,18 @@
 
 https://github.com/user-attachments/assets/2258f713-ce2b-4a66-907b-1e3161fdd788
 
+스페인 프리메라리가 마요르카의 이강인이 리그 최하위 팀 엘체와의 경기에 선발 출격해 90분 넘게 뛰며 맹활약했지만 팀은 승부를 가리지 못했습니다.
+이강인은 후반 추가시간 로드리게스와 교체될 때까지 세 차례 키 패스를 선보이는 등 날카로운 움직임에도 공격 포인트를 올리지는 못했습니다.
+무리키의 페널티킥 동점골로 1-1로 비긴 마요르카는 두 경기 연속 무승으로 리그 12위에 머물렀습니다.
+
+(출처:https://www.yna.co.kr/view/MYH20221011017500038)
+
 
 
 ![image](https://github.com/user-attachments/assets/8074ef12-cc67-4413-8ebf-2acdabb99f8b)
 
 ![KakaoTalk_20250220_204518000_02](https://github.com/user-attachments/assets/6f7d3099-19cf-4f4a-925b-5e25ab80b608)
 ![KakaoTalk_20250220_204518000_03](https://github.com/user-attachments/assets/6f39b498-e441-4261-9479-96f61c974f5d)
-![KakaoTalk_20250220_204518000_05](https://github.com/user-attachments/assets/8de40f57-e61d-4c10-bc77-0e24b2d20be9)
 ![KakaoTalk_20250220_204518000_04](https://github.com/user-attachments/assets/5ef71c00-52ad-4f8b-a363-aad2b4c2d48b)
 
 ![KakaoTalk_20250220_204518000](https://github.com/user-attachments/assets/2fd1064d-3119-4b56-b018-a4efd099a706)

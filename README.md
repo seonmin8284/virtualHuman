@@ -3,6 +3,20 @@
 # virtualHuman
 
 
+![image](https://github.com/user-attachments/assets/8074ef12-cc67-4413-8ebf-2acdabb99f8b)
+
+
+![article (1)](https://github.com/user-attachments/assets/f3dd0fa9-fd8e-4452-9b2b-0f42a5f35048)
+![269853_266734_814 (1)](https://github.com/user-attachments/assets/905a36d0-1cfb-40fd-b42d-4e71e2b5256a)
+
+
+https://github.com/user-attachments/assets/373c5751-7789-4a71-a8e2-da284ff3a92b
+
+
+
+https://github.com/user-attachments/assets/ada96263-c005-462e-9aed-043e756d8677
+
+
 
 https://github.com/user-attachments/assets/2258f713-ce2b-4a66-907b-1e3161fdd788
 
@@ -14,7 +28,6 @@ https://github.com/user-attachments/assets/2258f713-ce2b-4a66-907b-1e3161fdd788
 
 
 
-![image](https://github.com/user-attachments/assets/8074ef12-cc67-4413-8ebf-2acdabb99f8b)
 
 ![KakaoTalk_20250220_204518000_02](https://github.com/user-attachments/assets/6f7d3099-19cf-4f4a-925b-5e25ab80b608)
 ![KakaoTalk_20250220_204518000_03](https://github.com/user-attachments/assets/6f39b498-e441-4261-9479-96f61c974f5d)

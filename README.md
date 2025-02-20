@@ -1,8 +1,7 @@
 
 
 # virtualHuman
-
-
+### 📌 가상인간 생성 시스템 구성
 ![image](https://github.com/user-attachments/assets/8074ef12-cc67-4413-8ebf-2acdabb99f8b)
 
 
